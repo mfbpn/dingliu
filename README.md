@@ -1,6 +1,6 @@
 # 顶流机场官网地址
 
-最新地址：[顶流机场.com](https://xn--mes358aiqedo4c.com/#/register?code=4ZnlMlz4)
+最新地址：[顶流机场.com]()
 
 ## 顶流机场介绍
 
